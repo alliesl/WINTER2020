@@ -110,10 +110,10 @@ Samuel Ortiz (3:30pm)
 Anina Roche (3:30pm)  
 
 #### Team 14: Linear Depression 
-Huizi Yu (3:30pm)
-Lizhou Fan (3:30pm)
-Ruiheng Huang (12:30pm)
-Yongzhe Wang (3:30pm)
-Songhua Wang (3:30pm)
-Chen Jin (3:30pm)
+Huizi Yu (3:30pm)  
+Lizhou Fan (3:30pm)  
+Ruiheng Huang (12:30pm) 
+Yongzhe Wang (3:30pm)  
+Songhua Wang (3:30pm)  
+Chen Jin (3:30pm)  
 
