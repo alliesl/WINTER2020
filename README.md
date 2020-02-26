@@ -117,3 +117,9 @@ Yongzhe Wang (3:30pm)
 Songhua Wang (3:30pm)  
 Chen Jin (3:30pm)  
 
+#### Team 15: 
+Aabbeir Roy (12:30pm)   
+Lucas Machado (12:30pm)   
+Joe Bernal (12:30pm)   
+Austin Quon (12:30pm)   
+Natasha Nainani (3:30pm)  
